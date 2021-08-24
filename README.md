@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Araysh
+- 👀 I’m interested in Anime and Programming
